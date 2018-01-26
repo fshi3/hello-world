@@ -1,4 +1,6 @@
 # hello-world
 Just another repository
-What's good fellows
-duba luba dub dubbb
+Deleted the old stuff
+New stuff is here
+wubba lubba dubb dubb!
+nubb nubb
